@@ -1,1 +1,3 @@
 # Reading14b
+
+## This article shows how every team should work together, for Example "Team B is different. It’s evenly divided between successful executives and middle managers with few professional accomplishments. Teammates jump in and out of discussions. People interject and complete one another’s thoughts. When a team member abruptly changes the topic, the rest of the group follows him off the agenda. At the end of the meeting, the meeting doesn’t actually end: Everyone sits around to gossip and talk about their lives". This shows me that team B was just a perfect, unique, and a great a team. Its how everything team should be. 
